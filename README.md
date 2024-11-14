@@ -1,0 +1,2 @@
+# curriculuzin
+trabai (ou n)
